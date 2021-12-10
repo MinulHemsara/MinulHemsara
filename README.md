@@ -1,4 +1,4 @@
-👋 Hi, I’m Minul Hemsara\n
-👀 I’m interested in programming\n
+👋 Hi, I’m Minul Hemsara
+👀 I’m interested in programming
 📫 contact me - minulhemsara456@gmai.com
 -->
