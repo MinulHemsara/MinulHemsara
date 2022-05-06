@@ -1,7 +1,7 @@
 # Hi there, I'm Minul Hemsara 👋 
 
 
-- 🌱 I’m currently learning everything 🤣
+- 🌱 I’m currently learning everything 
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2022 Goals: Learn more about Developing
 - ⚡ Fun fact: I love to watching movies and play games
