@@ -6,9 +6,9 @@
 - 🥅 2022 Goals: Learn more about Developing
 - ⚡ Fun fact: I love to watching movies and play games
 
+<a href="https://www.linkedin.com/in/minul-hemsara-9a00741a8/" target="_blank"><img src="https://cdn2.iconfinder.com/data/icons/social-media-2199/64/social_media_isometric_14-linkedin-512.png" height="120px" width="120px" alt="Twitter" align="right"></a>
 ### Connect with me:
 
-<a href="https://www.linkedin.com/in/minul-hemsara-9a00741a8/" target="_blank"><img src="https://cdn2.iconfinder.com/data/icons/social-media-2199/64/social_media_isometric_14-linkedin-512.png" height="120px" width="120px" alt="Twitter" align="right"></a>
 
 
 ### Languages and Tools:
