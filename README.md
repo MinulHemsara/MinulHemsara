@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Learn more about Developing
+- 🥅 2023 Goals: Learn more about Developing
 - ⚡ Fun fact: I love to watching movies and play games
 - 📫 How to reach me: minulhemsara456@gmail.com 
 
